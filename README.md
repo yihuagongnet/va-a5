@@ -8,7 +8,7 @@ https://kmav.in
 
 https://kmav.one
 
-https://kmav.space 
+https://kmav.space
 
 https://kmav.lol
 
@@ -18,4 +18,4 @@ https://kmav.mom
 
 https://kmav.cfd
 
-https://kmav.top 
+https://kmav.top
